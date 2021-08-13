@@ -12,6 +12,8 @@ Some of the well known clients i worked with are
 8. Evolvus Bangalore 
 9. Symphony Services India Pvt Ltd.
 10. UEI Electronics Bangalore 
+11. JCI, Pune
+12. Opus Software Pune
 and more... 
 https://drive.google.com/drive/folders/0Bw613vXNL92yYXk2c05CVGxObEE?resourcekey=0-dfARldNrbBro-4a07OMfng 
 
